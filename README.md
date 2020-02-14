@@ -1,7 +1,7 @@
 # SogouNMSL
 忍无可忍
 
-### 搜狗你妈死了需要靠这种方式强行推广浏览器？
+### 搜狗你妈死了需要靠[这种方式](https://m.pubgorg.xyz/llq_75/p7009z.html)强行推广浏览器？
 ### 本人耐着性子用你的低带宽服务器下完了才发现是搜狗浏览器。
 
 https://m.pubgorg.xyz/llq_75/p7009z.html
